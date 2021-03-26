@@ -1,1 +1,0 @@
-# Proyecto-Kata-1
